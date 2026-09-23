@@ -13,3 +13,7 @@ ALLOOOOOOO
 ## Depression
 
 Nobody will read me ><
+
+## ANGER
+
+izhgejuyzegrjeauzgkug
